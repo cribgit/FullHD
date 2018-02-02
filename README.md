@@ -1,0 +1,2 @@
+# FullHD
+Principais termos
